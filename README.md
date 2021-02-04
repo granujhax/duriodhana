@@ -1,0 +1,2 @@
+# duriodhana
+pagina de repaso
